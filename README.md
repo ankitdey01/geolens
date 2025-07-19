@@ -12,4 +12,4 @@ Simply type, tap, and explore. Whether you're planning a trip, doing research, o
 
 🚀 Built for everyday explorers.  
 💡 Designed for simplicity.  
-🎯 Focused on what matters.
+🎯 Focused on what matters!
